@@ -6,3 +6,5 @@ Wallpapers will be organized by catagories of desending aspect ratio; further ca
 21:9 (Ultra)Widescreen - Wallpapers in the 21:9 Aspect Ratio
 16:9 Widescreen - Normal 16:9 wallpapers
 4:3 Fullscreen - S Ω U L
+
+Do not expect this to get updated any time soon. The only film I have immediate acess to in passable quality is The End of Evangelion, along with the complementary anime series. 
